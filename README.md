@@ -1,0 +1,6 @@
+- 👋 Hey, I'm Gildun (Gil-dun on GitHub)
+- 👀 I’m interested in source engine mainly
+- 📫 How to reach me:
+- Steam: https://steamcommunity.com/id/Gildun/
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I can't code lol
